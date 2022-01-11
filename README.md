@@ -7,7 +7,6 @@
 - 🏃‍♂️I'm looking for the next oportunity to work, learn and improve!
 - 🍣 I'm perfecting the art of sushi making
  
-<br />
 
 ### Connect with me:
 
