@@ -1,6 +1,6 @@
 ### Hi there, I'm Moshe 👋 
 
-## I'm a Husband, Father, Chef and Developer!
+## I'm a Father, Husband, Developer and Chef!
 
 - 💪 I'm finishing a Full Stack program in ITC
 - 🌱 I’m currently learning everything
